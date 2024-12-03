@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @floaty-badge
+- 👀 I’m interested in world domination
+- 🌱 I’m currently learning nuclear fusion techniques
