@@ -1,3 +1,6 @@
 - 👋 Hi, I’m @floaty-badge
 - 👀 I’m interested in world domination
 - 🌱 I’m currently learning nuclear fusion techniques
+- 🌍 Proud flat earther
+- 🐦 Birds Aren't Real
+- 🌑 The moon landing was faked
