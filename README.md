@@ -4,3 +4,5 @@
 - 🌍 Proud flat earther
 - 🐦 Birds Aren't Real
 - 🌑 The moon landing was faked
+- 👽 Servant of the dark lord Xenu
+- ☀️ Member of The Cosmic People of Light Powers 
